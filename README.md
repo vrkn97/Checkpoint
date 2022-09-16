@@ -1,1 +1,2 @@
 # Checkpoint
+Veronica Ruiz Alvarez
